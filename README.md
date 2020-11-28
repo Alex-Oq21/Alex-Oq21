@@ -1,4 +1,4 @@
-![](https://distritopadel.es/wp-content/uploads/2015/12/pino-navidad-gif-06_zpsbdf6d933.gif)
+![]()
 ### Hi there 👋
 
 <!--
