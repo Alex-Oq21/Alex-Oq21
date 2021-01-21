@@ -1,4 +1,4 @@
-![]
+![](https://tenor.com/view/spike-monkey-typing-gif-10973398)
 ### Hi there 👋
 
 <!--
