@@ -1,4 +1,4 @@
-![](https://tenor.com/view/spike-monkey-typing-gif-10973398)
+![](https://spcwebsites.co.uk/wp-content/uploads/2019/04/web-developer.gif)
 ### Hola! 👋
 
 <!--
