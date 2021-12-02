@@ -1,5 +1,5 @@
-![](https://2.bp.blogspot.com/-J8UNQ1Dx8OA/VG9wjl8hEfI/AAAAAAADGEc/2GshZ5uub2M/s1600/im%C3%A1genes-de-Navidad-postales-fiestas-decembrinas-y-gif-.gif)
-![](https://2.bp.blogspot.com/-J8UNQ1Dx8OA/VG9wjl8hEfI/AAAAAAADGEc/2GshZ5uub2M/s1600/im%C3%A1genes-de-Navidad-postales-fiestas-decembrinas-y-gif-.gif)
+![](https://2.bp.blogspot.com/-zYazmMmvEbE/WhHVU8dDssI/AAAAAAAATxE/wTXdf264YLg9rYBh_sFKK8MUQXN1ynIggCLcBGAs/s1600/BarraNavidadCTV%252C7a.gif=500x281)
+![](https://2.bp.blogspot.com/-zYazmMmvEbE/WhHVU8dDssI/AAAAAAAATxE/wTXdf264YLg9rYBh_sFKK8MUQXN1ynIggCLcBGAs/s1600/BarraNavidadCTV%252C7a.gif=500x281)
 
 ### Hola! 👋
 
