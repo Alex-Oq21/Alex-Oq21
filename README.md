@@ -1,4 +1,4 @@
-![](https://2.bp.blogspot.com/-zYazmMmvEbE/WhHVU8dDssI/AAAAAAAATxE/wTXdf264YLg9rYBh_sFKK8MUQXN1ynIggCLcBGAs/s1600/BarraNavidadCTV%252C7a.gif=500x281)
+![](https://2.bp.blogspot.com/-zYazmMmvEbE/WhHVU8dDssI/AAAAAAAATxE/wTXdf264YLg9rYBh_sFKK8MUQXN1ynIggCLcBGAs/s1600/BarraNavidadCTV%252C7a.gif=50000x2000)
 ### Hola! 👋
 
 <!--
