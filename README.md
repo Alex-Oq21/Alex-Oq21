@@ -16,7 +16,7 @@
 Here are some ideas to get you started:
 -->
 
-- 🌱 I’m currently going back to programming
+- 🌱 Python looks so interesting 🐍
 - ⚡ I’m looking to learn about automation testing
 - 💘 Java
 - 😏 Selenium
