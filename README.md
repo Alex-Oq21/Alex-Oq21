@@ -1,6 +1,5 @@
 <!--![](![image](https://user-images.githubusercontent.com/63822421/147980258-3d81a84d-3e51-410a-a570-928c2553f00c.png)-->
-
-![2d3131e5df7138931329c44e12485d5b](https://user-images.githubusercontent.com/63822421/147980318-cc944b9b-31ef-47fc-8b3f-b286ba5cfaaf.gif)
+![2435550](https://user-images.githubusercontent.com/63822421/148121710-12bf1cc4-a25b-4fea-abb2-e7faa611341a.png)
 
 ### Hi! 👋
 
