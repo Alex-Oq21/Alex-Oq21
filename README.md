@@ -16,10 +16,12 @@
 Here are some ideas to get you started:
 -->
 
-- 🌱 Python looks so interesting 🐍
 - ⚡ I’m looking to learn about automation testing
 - 💘 Java
 - 😏 Selenium
 - Back-End and Week-End🤣
 - 🎧 lofi hip hop radio
-- 🌈
+- ![image](https://user-images.githubusercontent.com/63822421/189774485-083c96a9-e767-4e63-8a81-8cfa97f9f615.png)
+![image](https://user-images.githubusercontent.com/63822421/189774702-179c8a10-2889-451e-9066-83330f29ae73.png)
+![image](https://user-images.githubusercontent.com/63822421/189774762-f6614eb2-9380-4a70-b4ec-279bdfb2ef47.png)
+![image](https://user-images.githubusercontent.com/63822421/189774816-7c990e34-46ce-4130-9cfa-3535d6ea0e04.png)
